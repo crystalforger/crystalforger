@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @crystalforger
+- 👀 I’m interested in having friends to play with
+- 🌱 I’m currently learning to speak Japanese and italian
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me chat me in my socmed
